@@ -1,5 +1,6 @@
-![0JsGmaI6_400x400 (1)](https://github.com/user-attachments/assets/318b18ef-7602-496e-808c-59afc3f6d199)
+![0JsGmaI6_400x400 (1)](https://github.com/user-attachments/assets/a6b15132-638f-4be4-9629-ef53e3c04804)
 # About me
+
 
 
 
